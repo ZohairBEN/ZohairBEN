@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Zohair BENAZZOUZ 
-- 👀 I’m interested in Music Prodcution, Filming, Gaming.
+- 👀 I’m interested in Music Prodcution, Filming, Gaming. 
 - 🌱 I’m currently learning how to make video games
 - 💞️ I’m looking to collaborate on making a 2D video game 
 - 📫 How to reach me (IG: Zohair_Benazzouz)
